@@ -1,5 +1,5 @@
-# sobre mim
-- Bem vindo ao meu perfil 💙 @SIDINEIPAULA
+**sobre mim**
+-  -Bem vindo ao meu perfil** 💙
 - 👀 estou interessado em aprender programação.
 :+1: meu email é sidienip8@hotmail.com
 - 🌱  Eu estou interessado em lógica de programação
