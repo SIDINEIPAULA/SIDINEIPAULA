@@ -9,4 +9,6 @@
  
 ![ ](https://media.tenor.com/E-cLzdlc_icAAAAM/snoopy-giggle.gif)
 
+![ ](https://tenor.com/pt/view/cat-dance-dance-cat-cat-ai-cat-ai-cat-dance-gif-16943432931705998786).
+
 
