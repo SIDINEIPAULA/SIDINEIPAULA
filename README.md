@@ -5,7 +5,8 @@
 - 🌱  Eu estou interessado em lógica de programação
 - 💞️ Eu estou aprendendo a programar java script e scrath
 - :+1: Link do java script
-
+- 🦮 
+![ ] ( https://tenor.com/pt-BR/view/bar-penguin-waiting-loading-pudgy-gif-7185161825979534095).
  
 ![ ](https://media.tenor.com/E-cLzdlc_icAAAAM/snoopy-giggle.gif)
 
